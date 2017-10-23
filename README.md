@@ -1,2 +1,0 @@
-# Mseodigital
-Mseo
